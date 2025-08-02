@@ -1,1 +1,1 @@
-# AIT-hackathon-
+# AIT-hackathon-2025
